@@ -1,2 +1,0 @@
-# Emmanuel-Ugwueze
-Silver telegram 
